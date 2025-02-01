@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Keyniteee
-- 👀 I’m interested in Music,Animation,coding(obv)
+- 👀 I’m interested in Animation and coding(obv)
 - 🌱 I’m currently learning Python and c++
 - 📫 How to reach me - keyniteee(Discord)
 - 😄 Pronouns:he/him
