@@ -1,3 +1,7 @@
+HEY!
+-I am currently 15 years old learning python and c sharp 
+-I m into game dev and animation 
+-How to reach me?-keyniteee(discord)
 
 
 <!---
